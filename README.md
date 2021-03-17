@@ -1,1 +1,3 @@
-# tmk-bot-nhypex
+`Soloking Tarafından`
+
+**YAPILMIŞTIR SATILMASI YASAKTIR**
